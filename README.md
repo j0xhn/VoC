@@ -1,6 +1,10 @@
 # My View of Human Consiousness
 
-In order to better understand the following descriptions, please consider reading my history found in the git commits of this file as well as the following suggested topics:
+I do not proclaim to know absolute truth, this is a living document intended to change and adapt.  Please help me form it through giving feedback, posting issues and branching when appropriate.  
+
+This is just *MY* current understanding state of mind, and relies almost entirely upon the principal of [Relative Truth](https://en.wikipedia.org/wiki/Relativism) and the ability for dual nature to exist as in [Quantum Mechanics](https://en.wikipedia.org/wiki/Quantum_mechanics).
+
+Also in order to better understand the following text, please consider reading my history found in the git commits of this file as well as the following suggested topics:
 
 - [Omniscience](https://en.wikipedia.org/wiki/Omniscience)
 - [Christianity](https://en.wikipedia.org/wiki/Christianity)
