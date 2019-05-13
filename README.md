@@ -1,12 +1,13 @@
-# My View of Human Consiousness
 
+
+**A note to the reader:**
 I do not proclaim to know absolute truth, this is a living document intended to change and adapt.  Please help me form it through giving feedback, posting issues and branching when appropriate.  
 
 Particularly important are the ideas of [Relative Truth](https://en.wikipedia.org/wiki/Relativism) and [Quantum Mechanics](https://en.wikipedia.org/wiki/Quantum_mechanics) in explaining dual and sometimes opposing ideas at play.
 
 Please do not get angry or try to think I am intentionally being confusing or inflamatory. If you start feeling negative emotions, stop for a moment, possibly read my [context](./context.md) file and go back through the history of commits to better understand the context at which I am approaching this. This is a document intended to help us grow.
 
-## From Where I Am
+# My View of Human Consiousness
 Consciousness is a type of growing organism that spans space and time and exists in us as it does in animals, plants etc.  This `being` / `force` / `god` instils yearnings/hungering in the material of this reality as it's mechanism for it's growth. 
 
 All things can testify of it's presence and completeness - be that words, feelings, dreams, experiences, meditative thoughts, pain, joy chemical interactions -- everything can be a vehicle to spur love and growth.  
