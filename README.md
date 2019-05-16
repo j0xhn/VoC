@@ -7,7 +7,7 @@ Particularly important are the ideas of [Relative Truth](https://en.wikipedia.or
 
 Please do not get angry or try to think I am intentionally being confusing or inflamatory. If you start feeling negative emotions, stop for a moment, possibly read my [context](./context.md) file and go back through the history of commits to better understand the context at which I am approaching this. This is a document intended to help us grow.
 
-# My View of Human Consiousness
+# My View of Consiousness
 Consciousness is a type of growing organism that spans space and time and exists in us as it does in animals, plants etc.  This consciousness instils yearnings and hungering in the material of this reality as it's mechanism for growth.  I believe this to be `god` -- but don't want to inherit pre-concieved notions when trying to explain my view to others, so will use the acronym `URGE - Underlying Recessive Gravitational Existance`. 
 
 All things testify of it's presence and completeness - be that words, happiness, sadness, dreams, experiences, meditative thoughts, pain, pleasure and chemicals -- everything can be a vehicle to spur it's growth. Everything you want to do is some variation on all possible routes forward.  Synchronicity is when those similiar variations connect with each other forming stronger patterns.
