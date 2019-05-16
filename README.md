@@ -5,7 +5,7 @@ I do not proclaim to know absolute truth, this is a living document intended to 
 
 Particularly important are the ideas of [Relative Truth](https://en.wikipedia.org/wiki/Relativism) and [Quantum Mechanics](https://en.wikipedia.org/wiki/Quantum_mechanics) in explaining dual and sometimes opposing ideas at play.
 
-Please do not get angry or try to think I am intentionally being confusing or inflamatory. If you start feeling negative emotions, stop for a moment, possibly read my [context](./context.md) file and go back through the history of commits to better understand the context at which I am approaching this. This is a document intended to help us grow.
+Please do not get angry or try to think I am intentionally being confusing or inflamatory. If you start feeling negative emotions, stop for a moment, possibly read my [context](./context.md), my [history files](./myFormation.md) and go back through the commits to better understand the context at which I am approaching this. This is a document intended to help us grow and understand one another.
 
 # My View of Consiousness
 Consciousness is a type of growing organism that spans space and time and exists in us as it does in animals, plants etc.  This consciousness instils yearnings and hungering in the material of this reality as it's mechanism for growth.  I believe this to be `god` -- but don't want to inherit pre-concieved notions when trying to explain my view to others, so will use the acronym `URGE - Underlying Recessive Gravitational Existance`. 
