@@ -1,5 +1,5 @@
 **A note to the reader:**
-If you're familiar with git, please read back through the previous versions to understand how I came to my current views.
+Please read my [context](./context.md) and [history files](./myFormation.md) and go back through the previous versions to understand how I came to my current views for a more broad and insightful understanding.
 
 # My View of Consiousness
 Consciousness is a type of growing organism that spans space and time and exists in us as it does in animals, plants etc.  This consciousness instils yearnings and hungering in the material of this reality as it's mechanism for growth.  I believe this to be `God` -- but don't want to inherit pre-concieved notions when trying to explain my view to others, so will use the acronym `URGE - Underlying Recessive Gravitational Existance`. 
