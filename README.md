@@ -17,9 +17,6 @@ Alpha and Omega.
 Christ. Allah. 
 Nirvana. 
 
-Everything. 
-Nothing. 
-
 Love.
 
 ◻️
