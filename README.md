@@ -8,6 +8,18 @@ It began between rock & ocean to produce a type of lichen or moss. Bacteria and 
 
 We are intertwined with our urges and the urges of others.  It exists in and around us. The part is an essential piece of the whole and the whole doesn't exist without the part. We are at the same time seperated and joined but at different locations in space, and different intervals in time like atoms in a river that split and then join back in on itself like the branches of lightning: imperceptible to our natural senses.  We don't actually ever see lighting, we only see the effects it has on our natural world. However we can feel it when it runs through our body.
 
-Simply put, God is Love.  The literal idea/feeling/expression/quest/purpose of love.  As soon as we try to put it into words, images or metaphors we fall short, and as soon as we try to understand what it feels like to someone else, we immediately understand that we cannot.  It's personally intimate, yet universal.  He is me.  We are it.  Christ. God. Love.
+Simply put, God is Love.  The literal idea/feeling/expression/quest/purpose of love.  As soon as we try to put it into words, images or metaphors we fall short, and as soon as we try to understand what it feels like to someone else, we immediately understand that we cannot.  It's personally intimate, yet universal.  
+
+He is me. We are it. 
+Nothing and everything. 
+Alpha and Omega. 
+
+Christ. Allah. 
+Nirvana. 
+
+Everything. 
+Nothing. 
+
+Love.
 
 ◻️
