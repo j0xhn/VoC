@@ -1,3 +1,5 @@
+## Everything is Nothing
+
 I’ve been trying to find a way to help others understand this simple concept that sometimes what we use to represent something, really isn’t anything at all. It applies to god, government, religion, meditation, diets, meditation techniques — you name it, all completely subsist of emptiness. As the buddhists say “form out of emptiness — emptiness out of form”
 
 I will be using the idea of God as the basis of my current stance. I hope to show that God is meaningful, yet also completely empty and based on nothing at the same time.
@@ -8,12 +10,14 @@ The following post is an attempt to explain myself and the paradox this creates.
 
 I could talk in circles all day, but find the language of math helpful in illustrating the connections of how I get to the statement “everything is nothing” as long as we share a common understanding of a few things, principally that God is love.
 
-In mathematics you can easily go down this path:<br>
+In mathematics you can easily go down this path:
+
 a=b<br>
 b=c<br>
 a=c
 
-using words this looks like this:<br>
+using words this looks like this:
+
 god is love<br>
 love is no thing<br>
 god is nothing<br>
@@ -46,25 +50,26 @@ The belief of physical existence of a magical trespassing joyful elf continues f
 In short Santa is both real, and non existent depending on what level you are reasoning about him on. That is also how I feel about God.
 Santa is both the idea, as well as the people that buy the presents. God is the people around us that help us feel love. That comfort us in times of need and feed us in times of hunger.
 
-This idea is not new, it’s been told time and time again, by different people in different cultures through time and history, illustrated by the following mashup poem of famous sayings of Jesus, Kabir and the sermon of King Benjamin:<br>
-It’s as if God is saying/
-I am in the next seat./
-My shoulder is against yours./
-you will not find me in the stupas,/
-not in Indian shrine rooms,/
-nor in synagogues,/
-nor in cathedrals:/
-not in masses,/
-nor in temples,/
-not in legs winding around your own neck,/
-nor in eating nothing but vegetables,/
-nor your solitary meditation regiment./
-When you really look for me,/
-you will see me instantly —/
-you will find me in the tiniest moment of time,/
-in the very least of these my brethren./
-For verily verily I say unto all:/
-when you are in the service of your fellow being/
+This idea is not new, it’s been told time and time again, by different people in different cultures through time and history, illustrated by the following mashup poem of famous sayings of Jesus, Kabir and the sermon of King Benjamin:
+
+It’s as if God is saying<br>
+I am in the next seat.<br>
+My shoulder is against yours.<br>
+you will not find me in the stupas,<br>
+not in Indian shrine rooms,<br>
+nor in synagogues,<br>
+nor in cathedrals:<br>
+not in masses,<br>
+nor in temples,<br>
+not in legs winding around your own neck,<br>
+nor in eating nothing but vegetables,<br>
+nor your solitary meditation regiment.<br>
+When you really look for me,<br>
+you will see me instantly —<br>
+you will find me in the tiniest moment of time,<br>
+in the very least of these my brethren.<br>
+For verily verily I say unto all:<br>
+when you are in the service of your fellow being<br>
 you are only in the service of your God.
 
 God is love.
