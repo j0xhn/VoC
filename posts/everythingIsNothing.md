@@ -1,4 +1,4 @@
-Everything is Nothing.
+## Everything is Nothing.
 
 I've been trying to find a way to help others understand that simple concept in my relation to god, government, religion, meditation, vegeanism, my meditation techniques -- you name it, all completely made up of emptiness. As the buddhists say - "form out of emptiness -- emptiness out of form"
 
