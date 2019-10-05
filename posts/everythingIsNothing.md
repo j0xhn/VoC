@@ -8,7 +8,7 @@ The following post is an attempt to explain myself and the paradox this creates.
 
 I could talk in circles all day, but find the language of math helpful in illustrating the connections of how I get to the statement “everything is nothing” as long as we share a common understanding of a few things, principally that God is love.
 
-In mathematics you can easily go down this path:/
+In mathematics you can easily go down this path:<br>
 a=b/
 b=c/
 a=c
