@@ -10,14 +10,14 @@ In mathematics you can easily go down this path:
 
 a=b\
 b=c\
-a=c\
+a=c
 
 yet somehow in religion and words 
 it is hard to achieve the same effect:
 
 god is love\
 love is no thing\
-god is nothing\
+god is nothing
 
 or to take it a step further in order to include every thought, sight, sound or smell that has ever entered into your brain:
 
