@@ -77,3 +77,4 @@ Organized religion — Church of Jesus Christ — has helped me grow my own love
 Meditation and stepping away from some of the guidelines given by organized religion has also helped me feel and share stronger love towards others, myself and even paradoxically my relationship towards the flawed organized religion I am a part of.
 
 Jesus gives me hope.
+That is my faith.
