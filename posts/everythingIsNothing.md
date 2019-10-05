@@ -9,24 +9,24 @@ The following post is an attempt to explain myself and the paradox this creates.
 I could talk in circles all day, but find the language of math helpful in illustrating the connections of how I get to the statement “everything is nothing” as long as we share a common understanding of a few things, principally that God is love.
 
 In mathematics you can easily go down this path:<br>
-a=b/
-b=c/
+a=b<br>
+b=c<br>
 a=c
 
-using words this looks like this:/
-god is love/
-love is no thing/
-god is nothing/
+using words this looks like this:<br>
+god is love<br>
+love is no thing<br>
+god is nothing<br>
 
-or to take it a step further and bring it full circle back to your person and every thought, sight, sound or smell that has ever entered into your brain as making up the fabric of the universe:/
-god is love/
-god is everything (alpha & omega)/
-love is everything/
-love is no one “thing”/
-god is nothing yet everything/
-you are a part of everything/
-you are nothing/
-you are god/
+or to take it a step further and bring it full circle back to your person and every thought, sight, sound or smell that has ever entered into your brain as making up the fabric of the universe:<br>
+god is love<br>
+god is everything (alpha & omega)<br>
+love is everything<br>
+love is no one “thing”<br>
+god is nothing yet everything<br>
+you are a part of everything<br>
+you are nothing<br>
+you are god<br>
 u = ♥
 
 Now this isn’t me saying that I don’t believe in God. Oh heaven’s no.
@@ -46,7 +46,7 @@ The belief of physical existence of a magical trespassing joyful elf continues f
 In short Santa is both real, and non existent depending on what level you are reasoning about him on. That is also how I feel about God.
 Santa is both the idea, as well as the people that buy the presents. God is the people around us that help us feel love. That comfort us in times of need and feed us in times of hunger.
 
-This idea is not new, it’s been told time and time again, by different people in different cultures through time and history, illustrated by the following mashup poem of famous sayings of Jesus, Kabir and the sermon of King Benjamin:/
+This idea is not new, it’s been told time and time again, by different people in different cultures through time and history, illustrated by the following mashup poem of famous sayings of Jesus, Kabir and the sermon of King Benjamin:<br>
 It’s as if God is saying/
 I am in the next seat./
 My shoulder is against yours./
