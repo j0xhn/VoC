@@ -21,9 +21,9 @@ It is and will always be a personal thing, yet always requires at least two. For
 
 One who says they comprehend that which is incomprehesible is by definition immediately mistook - we are to seek
 
-We are connected - The Body of Christ
-It is above light/dark - first/last
-Encompasing of all we can imagine
+It is above light/dark - one does not exist without the other
+
+Encompasing of all we can imagine.
 Alpha and Omega
 
 Love.
