@@ -19,12 +19,12 @@ Love the Lord your God with all your heart and with all your soul and with all y
 
 It is and will always be a personal thing, yet always requires at least two. For where two or three gather in my name, there am I with them. Its different to everyone and yet, the same to everyone. It is the idea of love, and that love is made manifest through my actions, and the actions of others. 
 
-He is me. We are it. 
-Nothing and everything. 
-Alpha and Omega. 
+One who says they comprehend that which is incomprehesible is by definition immediately mistook - we are to seek
 
-Christ. Allah. 
-Nirvana. 
+We are connected - The Body of Christ
+It is above light/dark - first/last
+Encompasing of all we can imagine
+Alpha and Omega
 
 Love.
 
