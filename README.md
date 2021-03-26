@@ -4,7 +4,7 @@ Please read my [context](./context.md) and [history files](./myFormation.md) and
 # My View of Consiousness
 Consciousness is a type of growing organism that spans space and time and exists in us as it does in animals, plants etc.  This consciousness instils yearnings and hungering in the material of this reality as it's mechanism for growth.  I believe this to be `God` -- but don't want to inherit pre-concieved notions when trying to explain my view to others, so will use the acronym `URGE - Underlying Recessive Gravitational Existance`. 
 
-Simply put, God is Love.  The literal idea/feeling/expression/quest/purpose of love.  As soon as we try to put it into words, images or metaphors we fall short, and as soon as we try to understand what it feels like to someone else, we immediately understand that we cannot.  It's personally intimate, yet universal. 
+Simply put, God is Love. And that which is the opposite of what we understand Love to be, often times the word Hate is used.  The literal idea/feeling/expression/quest/purpose of love, but also understanding and harnessing the power of hate of a world in which duality must exist.  As soon as we try to put it into words, images or metaphors we fall short, and as soon as we try to understand what it feels like to someone else, we immediately understand that we cannot.  It's personally intimate, yet universal. 
 
 How this being came into existance, is beyond my concern yet I still like to think about it.  It could have been in the middle of space, when nothing suddenly exploded into something. It could have began between rock & ocean in some type of lichen or moss. Bacteria and minerals joined with light and lightning from the sun and sky on this planet or possibly another. 
 
@@ -21,7 +21,8 @@ It is and will always be a personal thing, yet always requires at least two. For
 
 One who says they comprehend that which is incomprehesible is by definition immediately mistook - we are to seek
 
-It is above light/dark - one does not exist without the other.
+it is above light/dark - love/hate
+it is in the understanding that one denotes and defines the other
 
 Encompasing of all we can imagine.
 Alpha and Omega.
